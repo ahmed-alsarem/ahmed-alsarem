@@ -1,4 +1,5 @@
-![Oladino Project](https://oladino.com/wp-content/uploads/2023/10/MR-oladinocom-1110231103-11102023172220-1.jpeg)
+![I Stand With Palestine](https://images.fineartamerica.com/images/artworkimages/mediumlarge/3/1-i-stand-with-palestine-flag-vintage-agus-wahono.jpg)
+
 # Ahmed Alsarem - Web Developer 💻🚀
 
 مرحبًا! أنا أحمد الصارم، مطور ويب متخصص في إنشاء تطبيقات ومواقع ويب مبتكرة وعملية. أتمتع بخبرة واسعة في تطوير الحلول باستخدام مجموعة متنوعة من التقنيات الحديثة، بما في ذلك:
