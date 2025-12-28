@@ -1,4 +1,3 @@
-![I Stand With Palestine](https://images.fineartamerica.com/images/artworkimages/mediumlarge/3/1-i-stand-with-palestine-flag-vintage-agus-wahono.jpg)
 
 # Ahmed Alsarem - Web Developer 💻🚀
 
